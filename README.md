@@ -69,4 +69,12 @@ Praktikum Nama
 ![alt text](https://github.com/DikkyRahmadS/Jobsheet1/blob/master/16(2).PNG)
 
 
+Modul Lanjutan
 
+![alt text](https://github.com/DikkyRahmadS/Jobsheet1/blob/master/a.PNG)
+
+![alt text](https://github.com/DikkyRahmadS/Jobsheet1/blob/master/b.PNG)
+
+![alt text](https://github.com/DikkyRahmadS/Jobsheet1/blob/master/c.PNG)
+
+![alt text](https://github.com/DikkyRahmadS/Jobsheet1/blob/master/d.PNG)
